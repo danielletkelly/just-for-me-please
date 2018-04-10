@@ -104,3 +104,7 @@ and whispered your name in the dark
 the melancholy tragic nostalgia
 addiction
 we all crave
+
+----
+
+9/4/2018 Soooo I guess I'm failing miserably at this whole "a poem a day" challenge lol. Oops. In my defense, I have been busy. But to be fair, I am also just lazy and uninspired. For today's poem(s) I will maybe use a pinterest prompt. 
