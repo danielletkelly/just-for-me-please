@@ -2,6 +2,8 @@
 
 2/4/2018 So, obviously didn't write a poem yesterday. In other words, I have literally already failed the challenge. But oh well, every day is a new start (as my mother would say). So I'm going to write a poem now. 
 
+9/4/2018 Soooo I guess I'm failing miserably at this whole "a poem a day" challenge lol. Oops. In my defense, I have been busy. But to be fair, I am also just lazy and uninspired. For today's poem(s) I will maybe use a pinterest prompt. 
+
 ----
 **No Name**
 
@@ -107,4 +109,38 @@ we all crave
 
 ----
 
-9/4/2018 Soooo I guess I'm failing miserably at this whole "a poem a day" challenge lol. Oops. In my defense, I have been busy. But to be fair, I am also just lazy and uninspired. For today's poem(s) I will maybe use a pinterest prompt. 
+**Prompt: start poem with sentence from one book, and end with sentence from another book. 
+-"Has it stopped raining?" and "They listened to each other"s breathing, as though the simple fact that they were both alive was all they had to share."
+
+Has it stopped raining?
+He asks between silent sips
+apologetic gulps of water
+run down his throat 
+head tilted back 
+adam's apple bobbing like
+a buoy in the sea
+or a bird resting on the surface 
+a message in a bottle 
+drifting toward land
+carrying a message
+he gulps and I wait 
+for the parting of his lips 
+for the message in the bottle 
+to curl out from his tongue 
+like a scroll 
+or a red carpet 
+lavish and unnecessary
+he speaks 
+and suddenly the rain 
+the loudest thing between us
+drowns us 
+his words turn into raindrops 
+and the room rises
+all around us 
+water and 
+"I can't swim" I say
+you open your mouth and
+speak but all I hear is rain
+rain and more rain
+it hasn't stopped
+I wonder if it ever will. 
