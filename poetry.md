@@ -175,3 +175,44 @@ rain and more rain
 it hasn't stopped
 
 I wonder if it ever will. 
+
+----
+
+There is something tangible here
+sand squished between toes
+the cold metal of a doorknob
+feather stuffed pillows
+skin
+
+and
+
+The taste of you lingers
+on the coarse taste buds of my tongue
+the smell of your skin
+on the nape of my neck 
+where you kissed me
+again and again
+
+but
+
+I can't seem to hold you steady
+firmy in my fingertips 
+you slip through 
+like water
+an ocean wild and free and escaping
+you enchant me and entice me
+further into your depths
+I wade fearless and afraid
+and trusting 
+because you see
+I've never been good at swimming
+will you teach me?
+will you make yourself into an ocean I can capture
+embrace and float in?
+
+I have a feeling
+this real and tangible thing
+inside me screaming 
+like church bells
+warning and alerting
+this is going to change everything.
