@@ -194,7 +194,7 @@ and
 
 The taste of you lingers
 
-on the coarse taste buds of my tongue
+on the coarseness of my tongue
 
 the smell of your skin
 
@@ -222,19 +222,19 @@ you enchant me and entice me
 
 further into your depths
 
-I wade fearless and afraid
+I wade fearless afraid
 
-and trusting 
+trusting 
 
 because you see
 
 I've never been good at swimming
 
-*will you teach me?
+*will you teach me?*
 
-*will you make yourself into an ocean I can capture
+*will you make yourself into an ocean I can capture*
 
-*embrace and float in?
+*and embrace*
 
 
 I have a feeling
@@ -243,7 +243,7 @@ this real and tangible thing
 
 inside me screaming 
 
-like church bells
+church bells
 
 warning and alerting
 
