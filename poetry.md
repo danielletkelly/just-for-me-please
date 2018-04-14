@@ -178,11 +178,13 @@ I wonder if it ever will.
 
 ----
 
+**No Name**
+
 There is something tangible here
 
 sand squished between toes
 
-the cold metal of a doorknob
+cold metal of a doorknob
 
 feather stuffed pillows
 
@@ -234,7 +236,7 @@ I've never been good at swimming
 
 *will you make yourself into an ocean I can capture*
 
-*and embrace*
+*and embrace?*
 
 
 I have a feeling
@@ -243,8 +245,30 @@ this real and tangible thing
 
 inside me screaming 
 
-church bells
-
 warning and alerting
 
 this is going to change everything.
+
+----
+
+**Ode to The Roster**
+
+Over pink cocktails
+under the dim ambient lighting of some chain restaurant 
+she leans forward eyes glistening 
+lips curled at the edges, asks
+*what's your number?*
+it warrants puzzlement
+but the accompanying wink says it all
+*you know* she whispers *your* number
+
+The *number* falls from my lips 
+tumbles onto the table 
+and sits between us in silence
+awkwardly like an uninvited third dinner guest
+her mouth poised in a perfect shocked "o"
+too polite to ask it to leave 
+she fixes her face into something more appropriate
+feigns girlish deviance 
+giggles and attempts to recover 
+sips her pink drink.
