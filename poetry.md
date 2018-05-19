@@ -314,3 +314,31 @@ so familiar, no one thought to question
 forever. 
 
 ----
+
+**Miniature Shadow Dress Girl**
+
+Miniature shadow dress girl
+
+perched on the step behind me 
+
+mimicks my gaze
+
+perfect chin resting on the palm 
+
+of perfect little hand
+
+so pensive
+
+little miniature dress girl 
+
+my shadow
+
+in tiny dress covered in flowers
+
+Does your daddy call you flower?
+
+*Mi flor, preciosa*
+
+Does your daddy call you princess
+
+*princesa?*
