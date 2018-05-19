@@ -272,3 +272,45 @@ she fixes her face into something more appropriate
 feigns girlish deviance 
 giggles and attempts to recover 
 sips her pink drink.
+
+----
+
+Tonight I can see the shape of the moon
+
+Perfectly waiting in the sky
+
+frozen in the universe
+
+millions of stars bursting
+
+*make a wish*
+
+before they disappear
+
+escape into themselves forever. 
+
+Forever is a word humans created
+
+because not even time could escape being named
+
+tied down and labelled by some man
+
+of course it was a man
+
+who gave us forever
+
+the word, not the reality
+
+A man, who put the word in our mouths
+
+made us bite into it
+
+chew, swallow
+
+until it became a part of us
+
+so familiar, no one thought to question 
+
+forever. 
+
+----
