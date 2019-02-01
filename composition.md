@@ -40,6 +40,9 @@ Michael was enamoured with Betty right from the word "hello." She introduced her
 
 And the rest, as they say, is history. They were in love from that point on. 
 
+But, despite this new and wonderful love in his life, Michael's deepest desire was still to leave Egnland and his horrible family situation behind him. The money in his boot was enough to get him a ticket to sail away to a new country and start over. The choices were Canada or Australia, both of which seemed exotic and appealing in their own way. He couldn't decide, so he flipped a coin. Canada. This was an extremely conflicting time for Michael because he had always dreamed of leaving England, had saved his money, and now he could finally go to Canada and make this dream a reality. But that would mean leaving the love of his life, Betty, behind because she had a job, and a life, and not enough money to make the journey. 
+
+So, they kissed and embraced and promised to write letters and be together again some day soon, and Michael boarded a boat and sailed to Canada, leaving Betty behind. 
 
 
 
