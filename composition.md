@@ -52,4 +52,14 @@ However, my grandma wasn't just going to sit at home and wait for some man to ge
 
 When Betty finally arrived in Vancouver weeks later, she went to Michael's apartment and learned from his landlord where he would be, and went to the docks--where Michael worked--to meet him. As the boat Michael was working on floated in to port, he saw, standing there on the dock, auburn hair blazing behind her in the wind, the woman of his dreams, the love of his life, and the moment the boat docked, he bounded towards her, kissed her, and vowed never to leave her side again. 
 
+And they lived happily ever after...
 
+At least, that's what I've always been told. Unfortunately, due to an aggressive tumour my grandma died long before I was born, and even before my parents met. Because of this, my grandma, Betty, has always been this mysterious and fascinating woman in my life. Seeing as I am the only other redhead in the family, aside from my grandma, the comparison between us has always been greatly explored and discussed in my family. Everyone always talks about her courage and fearless nature, qualities I've always admired and aspired to emmulate. I mean, imagine leaving everything you know behind you and travelling *by boat* to a foreign country where you know absolutley no one, all for a man you love, in the hopes that everything will work out and he will be happy to see you. Now *that* is brave. 
+
+So, now, I have her ring, *the* ring resting on my finger, reminding me every day of the fearless woman going after what she wants. When I look down at the ring on my finger I see that history, I see my grandma, and I see Ireland. Although her family home was not a happy one, my grandpa always talked about his wife's love for her country, for Ireland, and how one day she wished to go back and to show her family its beauty. 
+
+I went to Ireland shortly after this ring came into my possession, and standing among the green countryside in my grandma's homeland, I let my hair down. I let my red locks blaze behind me as I gazed off into the distance, and I vowed (quite dramatically) to be fearless. To go after what I want and chase the things worth chasing. Love. Some people say I am a hopeless romantic, which I ardently disagree with because I am strongly opposed to the "romance" we expect today. But when I think of my grandparents and the love that crossed oceans and continents, it's hard not to believe in "true love" and all the things people write poems and books and movies about.
+
+Just think of this: My grandma died of a brain tumour on Easter Saturday. My grandpa died of a brain tumour on Easter Saturday twenty-five years later. 
+
+Call it a coincidence. Call it miraculous. But to me, it will always be...true love. 
