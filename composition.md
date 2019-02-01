@@ -42,7 +42,14 @@ And the rest, as they say, is history. They were in love from that point on.
 
 But, despite this new and wonderful love in his life, Michael's deepest desire was still to leave Egnland and his horrible family situation behind him. The money in his boot was enough to get him a ticket to sail away to a new country and start over. The choices were Canada or Australia, both of which seemed exotic and appealing in their own way. He couldn't decide, so he flipped a coin. Canada. This was an extremely conflicting time for Michael because he had always dreamed of leaving England, had saved his money, and now he could finally go to Canada and make this dream a reality. But that would mean leaving the love of his life, Betty, behind because she had a job, and a life, and not enough money to make the journey. 
 
-So, they kissed and embraced and promised to write letters and be together again some day soon, and Michael boarded a boat and sailed to Canada, leaving Betty behind. 
+The day of his departure, before boarding the boat that would take him to Canada, Michael pulled from his pocket a Claddagh ring he'd found in a shop and purchased with the remaining boot money. He presented it to Betty, placing it on her ring finger, and promised he would marry her one day, for she was the love of his life. Then they kissed and embraced and promised to write letters and be together again some day soon, and Michael boarded the boat and sailed to Canada, leaving Betty behind. 
 
+Canada was nothing like Michael imagined. It was cold, grey, and lonely, but he was finally away from his manipulative mother and working towards starting his new life in Vancouver. The only thing missing was Betty. They wrote back and forth for months, articulating their feelings and desires to be together, and fantasizing about a future where that could be a reality. 
+
+But Betty was not the only one sending Michael letters. His mother's manipulative presence managed to traverse the atlantic ocean and in *her* letters she manufactured lies about Betty, saying she was traipsing about town with countless men and that she was unfaithful to him and encouraged Michael to end things with her. Naturally, Michael was heartbroken and being so far from home and Betty and everything he knew, he was vulnerable to these lies, and believing them, stopped writing to Betty. 
+
+However, my grandma wasn't just going to sit at home and wait for some man to get his act together. So she packed her bags, left England behind, and boarded a boat to Canada to fight for the man she loved. 
+
+When Betty finally arrived in Vancouver weeks later, she went to Michael's apartment and learned from his landlord where he would be, and went to the docks--where Michael worked--to meet him. As the boat Michael was working on floated in to port, he saw, standing there on the dock, auburn hair blazing behind her in the wind, the woman of his dreams, the love of his life, and the moment the boat docked, he bounded towards her, kissed her, and vowed never to leave her side again. 
 
 
