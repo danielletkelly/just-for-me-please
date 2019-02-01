@@ -24,5 +24,8 @@ Elizabeth Kerwick, or Betty as most people called her, grew up in Tipperary, Ire
 
 So, one day she did, and she fled to England. 
 
+In a time when Tinder, Bumble, and other online platforms are the foundation and building blocks of new and budding romance, it's hard to relate to or even fathom the possibility of the romances explored in classic love stories told in books and films. The whole girl meets boy, a courting ensues, boy and girl fall in love, etcetera is not the norm nowadays. It's more like, girl sees boy on tinder, boy and girl both swipe right, boy and girl meet in real life, and someone is not who they said they were. This is romance in 2019. But in 1947 things looked a bit different. 
+
+The night my grandpa, Michael Kelly, went to the monthly town dance, he entered the hall dressed in his best clothes, which were shabby and second-hand from his mother's drunken husband. Despite the disrepair of his clothes, he made his best effort to look nice, his jet black hair slicked back, eyes shining. He had no idea he would the love of his life tonight. 
 
 
