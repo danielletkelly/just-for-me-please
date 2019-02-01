@@ -1,1 +1,3 @@
-testing one.
+The Claddagh ring is a traditional Irish ring that originated in Galway and dates back to the 17th century. At least, that's what wikipedia tells me. The ring itself is composed of three key parts: the heart, the crown, and the two hands. Each part carries meaning. The heart signifies love; the crown, loyalty; and the two hands signify friendship. Traditionally, Claddagh rings were given as engagment rings, but have also become popular gifts from friend to friend, or for family members. 
+
+My Claddagh ring was neither; not so much a gift, but rather a casual passing down and handing of a family history. 
