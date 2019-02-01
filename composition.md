@@ -34,6 +34,6 @@ And neither did she, Elizabeth Kerwick. Betty.
 
 Betty was no stranger to these dances. In fact, she was quite sought after with her perfectly coiffed auburn hair, her deep green eyes, and her charming Irish accent that made everything she said sound like a good idea. She had noticed Michael at other dances, his back always pressed firmly against the wall as if he were glued to it, his eyes always searching, dancing along with the people and the music, but retreating to the ground whenever someone grew too close or threatened eye contact. He was shy, but Betty had seen, in a few fleeting moments when his blue eyes did not gaze at the floor, a kindness, and something about him intrigued her. So, that night, while Michael stood in his usual spot, against the wall watching the goings-on of the evening, Betty danced with her friends and a few men who introduced themselves as potential suitors, but all the while she watched the shy boy with the blue eyes. 
 
-
+As the night progressed and drew near to a close, one of Betty's "suitors," encouraged by the alcohol in his system, became handsy and beligerent and a tad too insistent that she leave with him. Betty, being quite an outspoken and independent woman, was not intimidated by this man. However, she did see it as an opportunity. So, when Michael's blue eyes landed on hers, she made sure to communicate with them that she needed help, and when his gaze did not drop to the floor, she took that as her in and walked across the hall to talk to him. 
 
 
