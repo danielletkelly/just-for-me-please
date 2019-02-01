@@ -18,8 +18,9 @@ Although she wasn't his step-parent, Michael's mother was just as wicked and hea
 
 In the years that followed, Michael's life consisted only of hard work and little reward in the form of love or gratitiude from his mother. But his "boot savings" were growing significantly day by day and the dream of soon escaping his slave-like existence started to seem possible. This dream, unfortunately, was interrupted briefly when he was called to fight in the final years of WWII. 
 
-But, things were starting to look up for Michael, because he was lucky and survived the war unscathed, and although he had to return to the monotonous days on the farm and the cruelty of his mother, good fortune was just awaiting just around the corner in the form of my grandma. 
+But, things were starting to look up for Michael, because he was lucky and survived the war unscathed, and although he had to return to the monotonous days on the farm and the cruelty of his mother, good fortune was awaiting just around the corner in the form of my grandma. 
 
+Elizabeth Kerwick, or Betty as most people called her, grew up in Tipperary, Ireland in a big, but fairly normal family. However, like Michael's family, things in Betty's life took a turn for the worst when a family member walked out. This time it was the father and this time, there is an evil step-parent. Betty's new step-father came with new step-siblings, and like Cinderella, Betty was pushed aside and treated like a slave, rather than a member of the family. Imagine blankets on cold concrete floors and scraps of food served in a dog dish, and this was Betty's daily existence. The conditions were horrible and like Michael, she wished to escape from it all. So she did, and she fled to England. 
 
 
 
