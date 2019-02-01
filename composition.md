@@ -4,12 +4,14 @@ My Claddagh ring was neither; not so much a gift, but rather a casual passing do
 
 When I look down at the ring now resting on my finger, I think of all the incredible, strong women who wore it before me. I think about the past and the history one tiny object carries with it. And most of all, I think about where it all started, in a small town in England when a young British man met a beauitful Irish woman at a dance and fell in love. 
 
-This is a sotry I've heard many timrom my mother. Although it is a story about my paternal grandparents, when I was little my mother and grandpa would stay up late talking about his life and all the horrible and wonderful events that led him to Canada, and when he died, she would tell them to me. 
+This is a sotry I've heard many times from my mother. Although it is a story about my paternal grandparents, when I was little my mother and grandpa would stay up late talking about his life and all the horrible and wonderful events that led him to Canada, and when he died, she would tell them to me. 
 
 For all intents and purposes, this is a fairytale, with wicked step-parents, orphans, wishes, adventure, love, and a happily ever after. So in that vein, let me begin with the most cliche statement of all:
 
 Once upon a time...
 
-There was a family of six children, three girls and three boys, who lived on a farm in Northern England with their mother and father. When their father left to fight in the war, the mother, a weak and selfish woman, sent her six children to orphanages because she felt they were too great a burden for her to bare on her own. The three girls were sent to one orphanage, while the three boys were sent to another, unsure if they would ever see each other again. The eldest child, just six-years-old, was Michael.
+The Kelly family, a family of six children, three girls and three boys, lived on a farm in Northern England with their mother and father. When their father left to fight in the war, the mother, a weak and selfish woman, sent her six children away to orphanages because she felt they were too great a burden for her to bare on her own. The three girls were sent to one orphanage, while the three boys were sent to another, unsure if they would ever see each other again. The eldest child, just six-years-old, was Michael Kelly, my grandpa. 
+
+Michael lived in the orphanage for sixteen years, over which time he received no love or nurturing from the nuns who ran the orphanage, and looked after his two younger brothers. While at the orphanage his father visited a handful of times when he was able and wrote letters when he couldn't, but unfortunately died in the war. His mother never visited or wrote. On his sixteenth birthday Michael was allowed to leave the orphanage, and having nowhere else to go, his mother allowed him to return to their home, but only under the conditions that he would work on the farm for free. 
 
 
