@@ -24,8 +24,16 @@ Elizabeth Kerwick, or Betty as most people called her, grew up in Tipperary, Ire
 
 So, one day she did, and she fled to England. 
 
-In a time when Tinder, Bumble, and other online platforms are the foundation and building blocks of new and budding romance, it's hard to relate to or even fathom the possibility of the romances explored in classic love stories told in books and films. The whole girl meets boy, a courting ensues, boy and girl fall in love, etcetera is not the norm nowadays. It's more like, girl sees boy on tinder, boy and girl both swipe right, boy and girl meet in real life, and someone is not who they said they were. This is romance in 2019. But in 1947 things looked a bit different. 
+In a time when Tinder, Bumble, and other online platforms are the foundation and building blocks of new and budding romance, it's hard to relate to or even fathom the possibility of the romances explored in classic love stories exhibited in books and films. The whole girl meets boy, a courting ensues, boy and girl fall in love, etcetera is not the norm nowadays. It's more like, girl sees boy on tinder, boy and girl both swipe right, boy and girl meet in real life, and someone is not who they said they were. This is romance in 2019. 
 
-The night my grandpa, Michael Kelly, went to the monthly town dance, he entered the hall dressed in his best clothes, which were shabby and second-hand from his mother's drunken husband. Despite the disrepair of his clothes, he made his best effort to look nice, his jet black hair slicked back, eyes shining. He had no idea he would the love of his life tonight. 
+But in 1947 things looked a bit different. 
+
+The night my grandpa, Michael Kelly, went to the monthly town dance, he entered the hall dressed in his best clothes, which were shabby and second-hand from his mother's drunken husband. Despite the disrepair of his clothes, he made his best effort to look nice, his jet black hair slicked back, eyes shining. He had no idea he would meet the love of his life tonight. 
+
+And neither did she, Elizabeth Kerwick. Betty.
+
+Betty was no stranger to these dances. In fact, she was quite sought after with her perfectly coiffed auburn hair, her deep green eyes, and her charming Irish accent that made everything she said sound like a good idea. She had noticed Michael at other dances, his back always pressed firmly against the wall as if he were glued to it, his eyes always searching, dancing along with the people and the music, but retreating to the ground whenever someone grew too close or threatened eye contact. He was shy, but Betty had seen, in a few fleeting moments when his blue eyes did not gaze at the floor, a kindness, and something about him intrigued her. So, that night, while Michael stood in his usual spot, against the wall watching the goings-on of the evening, Betty danced with her friends and a few men who introduced themselves as potential suitors, but all the while she watched the shy boy with the blue eyes. 
+
+
 
 
