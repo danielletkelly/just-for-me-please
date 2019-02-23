@@ -4,6 +4,13 @@ Now, I know what you're thinking: "that's what they all say." And I would agree 
 
 Anyway, I know this all contradicts my first statement and now you're thinking: "she's like all the other girls." But I'm not, I'm really not. Because you see, I have this thing, a ring. It's an old gaelic ring my grandma gave to me that her grandma gave to her, and before that her mother gave it to her, and her mother was the duchess of some town in Wales somewhere or something like that. I don't know all the details. The point is, it's a really old ring. 
 
+Unlike me, this ring is anything but ordinary. In fact, it's a magic ring. Have you ever seen The Lord of the Rings? Well, you know how when anyone puts on the ring of power the wearer instantly disappears from sight but then becomes visible to the creepy armour dudes and *the eye*? Okay, maybe you don't, but that's kind of like my ring, but way less intense. My ring, when I put it on my finger, temporarily makes me invisible. According to my grandmother this is some ancient gaelic magic that our ancestors used to protect themselves and scout out their enemies. She gave it to me this year, on my fifteenth birthday, as per tradition in the Fletcher family, and with it explained the history and the dangers of the magic. Basically, she told me it was only to be worn in emergencies and times of desperation, and that I must never reveal to anyone its true capabilities. As you can imagine, these conditions weren't very appealing. What's the point of having a magic invisibility ring if you can't use it or show it off? So much for a cool party trick. 
+
+
+
+
+
+
 In saying that I'm aware that all girls say this at some point or another, but this time it really is true. Trust me. For instance, do other girls have a magic gaelic ring that makes them temporarily invisible when they put it on their finger? I don't think so. Not a bad party trick, eh? 
 
 
