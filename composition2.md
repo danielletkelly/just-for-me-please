@@ -22,5 +22,14 @@ Then there are the jokers. This group isn't the best of the bunch but they're no
 
 Finally, there are the truly unathletic individuals who possess no athletic ability and also lack the vibrant personality to make up for it. No one wants this person on their dodgeball team, or their kickball team, or whatever team. And they defintely don't receive an invite to the birthday parties. This is the way it is. Of course, there are people who fall between these categories and don't necessarily fit into just one, but this is generally how it works. Can you guess which category I fall under?
 
-Walking down the hall towards the changing rooms I already know that I'm going to be late. The hallway, like the cafeteria, is completely empty. The hum of teachers beginning their lessons drifts under classroom doors. A locker decorated in purple wrapping paper disrupts the uniformity of the rows of blue lockers. The purple wrapping paper is peppered with stickers of pugs in various pug-like positions, laying on their backs, sitting up, tongues lolling out the side of their mouths. *Happy Birthday Erica* is scrawled across it in silver sharpie, with an assortment of scribbled notes and messages all around it. I pause a moment in front of the locker to read some of the messages. Erica is one of the "popular bunch."  
+Walking down the hall towards the changing rooms I already know that I'm going to be late. The hallway, like the cafeteria, is completely empty. The hum of teachers beginning their lessons drifts under classroom doors. A locker decorated in purple wrapping paper disrupts the uniformity of the rows of blue lockers. The purple wrapping paper is peppered with stickers of pugs in various pug-like positions, laying on their backs, sitting up, tongues lolling out the side of their mouths. *Happy Birthday Erica* is scrawled across it in silver sharpie, with an assortment of scribbled notes and messages all around it. I pause a moment in front of the locker to read some of the messages. Erica is one of the "popular bunch." As I read I can hear a door open, a woosh of air, and the heavy sound of the door closing again. The squeak of sneakers on the glossy concrete floor.
+
+"Molly!" I turn away from Erica's locker. There is my gym teacher, Mr. Kowolski, dressed head to toe in neon green nike apparel, arms crossed, wearing a stern look that thoroughly contradicted his vibrant look. "What are you doing lingering in the halls? Class started ten minutes ago!" 
+
+Upon closer inspection, I notice a small red splotch on the right side of his shirt's collar. Ketchup, perhaps? Maybe hot sauce? The cafeteria served french fries today. As Mr. Kowolski's impatient look grows more intense I ponder whether he is the type of man to put hot sauce on french fries. An intriguing prospect. 
+
+"Sorry," I mumble. "I got lost." A weak excuse, although somewhat plausible seeing as I am technically still a new student. I've been at the school for almost a month though, so maybe not that believable. By the look on Mr. Kowolski's face I can see he's not convinced. 
+
+"Just go change and join us on the East field, we're playing rugby today."
+
 
